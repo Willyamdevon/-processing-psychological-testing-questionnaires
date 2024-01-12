@@ -28,3 +28,4 @@ In total, during testing there were several techniques that I needed to work out
 In total for this work I received 3500 rubles / $40 💵
 
 Have a nice day, everyone 💖
+-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
